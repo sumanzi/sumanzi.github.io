@@ -1,1 +1,0 @@
-# sumanzi.github.io
